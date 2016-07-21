@@ -1,4 +1,4 @@
 - While My Guitar Gently Wheeps
 - Taxman
 - Something
-- Here comes the sun
+- Here Comes The Sun
