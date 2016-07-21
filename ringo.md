@@ -1,1 +1,4 @@
-- drums
+- Octopusses' Garden
+- Good Night
+- Yellow Submarine
+- If You've Got Trouble
